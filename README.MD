@@ -1,1 +1,1 @@
-I like NVIDIA.
+Finance is fun.
